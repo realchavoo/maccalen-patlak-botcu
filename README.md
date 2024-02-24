@@ -38,11 +38,14 @@ ve son olarak hazir alt yapi la sunucu vurma ss bu adama bot yaptirmayin patlak 
 ![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/751345f5-5ff0-423f-a570-aaf7bc97fb38)
 
 dostlarimiz ve botcu ekipimiz
-![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/e4c00c95-f317-4242-8be5-28e8e359a012) aslan kardesim azad
+![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/e4c00c95-f317-4242-8be5-28e8e359a012) 
+aslan kardesim azad
 
-![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/a12f5559-1e83-42be-b819-a04131c497b3) aslan dostum burjuva
+![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/a12f5559-1e83-42be-b819-a04131c497b3) 
+aslan dostum burjuva
 
-![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/59781b3a-71ab-4487-b4ed-cc22b957b2b3) ve ben
+![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/59781b3a-71ab-4487-b4ed-cc22b957b2b3) 
+ve ben
 
 discord.gg/clydev
 
