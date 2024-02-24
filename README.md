@@ -38,6 +38,7 @@ ve son olarak hazir alt yapi la sunucu vurma ss bu adama bot yaptirmayin patlak 
 ![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/751345f5-5ff0-423f-a570-aaf7bc97fb38)
 
 dostlarimiz ve botcu ekipimiz
+
 ![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/e4c00c95-f317-4242-8be5-28e8e359a012) 
 
 aslan kardesim azad
