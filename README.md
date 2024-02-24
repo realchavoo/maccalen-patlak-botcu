@@ -27,7 +27,7 @@ bu ss deki dostumuza laf atiyor arkasindan sonra yuzunde kardesim askim li konus
 ![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/dbe512da-ca75-40c2-a38b-beeb393701ef)
 
 
-simdi en iyisi para dilendigi kismi geldi yerim senin o ibanini aslan karim
+simdi en iyisi para dilendigi kisma geldi yerim senin o ibanini aslan karim
 
 ![image](https://github.com/realchavoo/maccalen-patlak-botcu/assets/133610412/fd4645d5-3e57-4f90-a045-08f0bdf808e5)
 
